@@ -9,7 +9,7 @@ Thursday, July 2, 2020 from 4:00 PM to 5:30 PM (PDT)
 
 ### Sustainable Solano
 #### Resilient Neighborhoods Program.
-TBA
+http://sustainablesolano.org/resilient-neighborhoods/
 
 ### My very messy notes - to be cleaned
 everyone is a place maker
