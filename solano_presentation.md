@@ -1,7 +1,7 @@
 ## Presentation details
-Reimagining the Neighborhood: A Placemaker's Journey with Mark Lakeman
+### Reimagining the Neighborhood: A Placemaker's Journey with Mark Lakeman
 Thursday, July 2, 2020 from 4:00 PM to 5:30 PM (PDT)
-Organized by Sustainable Solano
+- Organized by Sustainable Solano
 
 ### Resources from the presentation
 For those that didn't attend live you can now view the recorded version of Reimagining the Neighborhood: A Placemaker's Journey on our youtube channel. 
