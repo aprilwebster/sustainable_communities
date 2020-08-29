@@ -1,3 +1,18 @@
+## Presentation details
+Reimagining the Neighborhood: A Placemaker's Journey with Mark Lakeman
+Thursday, July 2, 2020 from 4:00 PM to 5:30 PM (PDT)
+Organized by Sustainable Solano
+
+### Resources from the presentation
+For those that didn't attend live you can now view the recorded version of Reimagining the Neighborhood: A Placemaker's Journey on our youtube channel. 
+https://youtu.be/OEX_O_EfpFE
+ 
+The presentation slides are also now available to be viewed online.
+http://sustainablesolano.org/wp-content/uploads/2020/07/Vallejo-Online-Presentation-7-7-20_compressed.pdf
+All of these resources can be found on our website, along with the Project Interest Form, Vision Form, and more information about our Resilient Neighborhoods Program.
+
+
+### My very messy notes - to be cleaned
 everyone is a place maker
 
 there is an endless capacity to transform the mundane we experience every day
