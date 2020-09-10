@@ -12,9 +12,8 @@ Thursday, July 2, 2020 from 4:00 PM to 5:30 PM (PDT)
 http://sustainablesolano.org/resilient-neighborhoods/
 
 ### My very messy notes - to be cleaned
-everyone is a place maker
-
-there is an endless capacity to transform the mundane we experience every day
+- everyone is a place maker
+- there is an endless capacity to transform the mundane we experience every day
 
 would people talk to each other?
 would children be safe?
@@ -31,7 +30,7 @@ intergenerational
 
 creative misbehaviour
 
-the village square is the catalyst
+
 
 community of adults who are receptive
 
@@ -50,13 +49,12 @@ projects to expand resilient neighbourhood
 Nodes and organs of the place
 How do people know they’re entering this place
 
-colonial grid
 
 think about ways to, given that can’t change of grid now, but how we can alter to achieve revillaging
 
 Solano’s resilience hub
 
-movement called new urbanism
+#### New urbanism movement
 * walkable community
 * raise a similar comparison
     * need to understand that patterns installed by for-profit orgs, but our lives do depend on ei
@@ -68,7 +66,8 @@ movement called new urbanism
     * response to climate and addresses their culture
 
 
-Medieval places
+#### Medieval places
+* the village square is the catalyst and hub, as opposed to the colonial grid
 * we’re seeing a crystallized landscape of inequity
 * manifest at time before women had equal opportunity
 * exciting to him in Vallejo - what does it look like to embrace equity on broad and deep scale
